@@ -9,4 +9,4 @@ here are some ideas to get you started:
 - 📫 how to reach me: em sbc
 - 😄 promuns: ele dele
 - ⚡ fun fact : jogo bola, sei apresentar, sou educado, sei colaborar, nao falo muito em ambiente de trabalho, etc
-https://tenor.com/pt-BR/view/corinthians-rodrigo-garro-gif-3467882418664779333
+![](https://media1.tenor.com/m/MCBkr6dWLkUAAAAd/corinthians-rodrigo-garro.gif)
